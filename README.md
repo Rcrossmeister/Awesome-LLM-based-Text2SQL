@@ -3,5 +3,4 @@
 
 
 
-Combing in this month~!
-
+Coming soon in this month (April) !
